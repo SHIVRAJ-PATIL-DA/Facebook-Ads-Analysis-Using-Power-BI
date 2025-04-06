@@ -62,13 +62,13 @@ This repository contains a comprehensive analysis of Facebook Ads performance da
 If you’d like to share feedback, have suggestions, or are open to collaboration, feel free to reach out:
 
 - 📧 Email: shivrajspati1251@gmail.com  
-- 💼 [LinkedIn](https://www.linkedin.com/in/YOUR_USERNAME_HERE) *(replace with your profile link)*
+- 💼 [LinkedIn](https://www.linkedin.com/in/shivraj-patil-1961b4307?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BDlVIEJXbTISQGRJs5Ed%2BAg%3D%3D)
 
 ---
 
 ## 🔗 Related Links
 
-- 🌐 [Portfolio](https://lnkd.in/dJ-yvkJh)  
+- 🌐 [Portfolio](https://shivraj-patil-da.github.io/shivrajpatil.github.io/)  
 
 ---
 
